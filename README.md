@@ -1,6 +1,6 @@
 Hi, I’m @Sameer-Ansari506-
-I’m am interested in software development- 
-I’m currently learning computer science- 
+I’m CS major
+,interested in notive iOS and Android development- 
 I’m looking to collaborate on various development related topics-
 You can reach me on my mail sameeransari3297@gmail.com-
 or instagram account Aal_e_adam485
